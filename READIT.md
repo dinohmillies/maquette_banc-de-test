@@ -1,0 +1,20 @@
+# BANC DE TEST made by Supracodelabs
+
+## Welcome to banc de test. A project that bypass real physical cons and accelerates significantly the laboratories test process for your product conception.
+
+TESTING A PRODUCT CONDITION CAN TAKE SEVERAL YEARS BEFORE HAVING THE RIGHT FOR LAUNCHING
+WITH OUR ENVIRONMENT REPLICA, YOU JUST NEED TO SET FEW PARAMETERS, ENTER YOUR CLIENT TARGET, SEND YOUR PRODUCT
+PARAMETERS INTO A FULL MILITARIZE SECURED SANDBOX AND FEW DAYS & HOURS AFTER YOU OBTAIN 
+DETAILED UPGRADE AND ENHANCEMENT TO DO INTO YOUR PRODUCT TO GET THE COMPLETE RIGHTS
+FOR COMMERCIALIZING YOUR PRODUCT IN EVERY MARKET OF THE WORLD AND BEYOND.
+
+### OUR POWERFUL ENGINE WORKS EXCLUSIVELY WITH EXPERIENCED SALES REPRESENTATIVE, PRODUCT TESTERS AND ENDLINE LABORATORIES.
+WELCOME TO SUPRACODELABS' WORLD 😘
+● Ayas, Supracodelabs' Chief Executive Officer
+
+• Written the 19th December of 2025 at l'Enclos Des Sources (France, 72650) EUR at 9:22 AM UTC+1 (CEST)
+
+NB: We are available only in France. You can contact us only in person or through Laposte, UPS or DHL.
+Taxes Applicable.
+
+All rights reserved. Inc. Copyright 2025
